@@ -1,2 +1,0 @@
-# AlainG
-cybersecurity / homework
